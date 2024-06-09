@@ -1,4 +1,4 @@
-# Shit
+# My apps / codes
 
 I don't know what to write here lmao. I upload shitty codes and apps that I wrote in my free time. 
 I dont really care what you gonna do with them.
